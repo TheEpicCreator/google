@@ -1,3 +1,2 @@
-## TROLL INCOMING!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-
-Click link if nico is here don't do it before... [troll :)](\\.\globalroot\device\condrv\kernelconnect).
+## WEEK 7 GO BRRRRRRRRRRRRRR!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+nico here [week7](https://fnfunkin.com/week-7).
